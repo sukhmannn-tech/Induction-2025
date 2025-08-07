@@ -32,6 +32,7 @@ Er. Rakesh Kumar, GNDEC alumnus (Batch 1991) and ADC Ludhiana
 
 🎤 Vote of Thanks was delivered by Dr. K.S. Mann (HoD, IT)
 
+[img(![IMG-20250807-WA0006](https://github.com/user-attachments/assets/1fe46b45-f609-42be-b052-df778221cfb5)
 
 
 
@@ -54,6 +55,7 @@ Er. Rakesh Kumar, GNDEC alumnus (Batch 1991) and ADC Ludhiana
 💡 Buddy4Study Scholarship Guidance
 → Provided useful details on financial aid opportunities and explained how students can apply for scholarships effectively.
 
+[img(![IMG-20250807-WA0001](https://github.com/user-attachments/assets/23d8b458-aefe-4835-bad6-b00de03f8090)
 
 
 📍 Day 3 — 2nd August 2025
@@ -71,6 +73,9 @@ Er. Rakesh Kumar, GNDEC alumnus (Batch 1991) and ADC Ludhiana
 
 🔁 Group Reflection Sessions
 → Students reviewed and discussed their Day 2 test outcomes with peers under guidance, promoting self-awareness and improvement.
+
+[img(![IMG-20250807-WA0002](https://github.com/user-attachments/assets/e3bda2e6-0154-4e75-a1c5-f3277dad43d3)
+[img(![IMG-20250807-WA0005](https://github.com/user-attachments/assets/2b7001d3-7327-4eef-8dce-ed9ecf831677)
 
 
 
@@ -90,6 +95,10 @@ Er. Rakesh Kumar, GNDEC alumnus (Batch 1991) and ADC Ludhiana
 🤝 Peer Interaction Sessions
 → Seniors and faculty connected with freshers through open Q&As, games, and interactive discussions — helping everyone bond and feel more at home.
 
-<img src="./assets/orientation.jpg" alt="GNE Orientation" width="400"/>
+[img(![IMG-20250807-WA0004](https://github.com/user-attachments/assets/8bb8881e-ac20-49a5-8583-2278adc0dc71)
+
+[img(![IMG-20250807-WA0003](https://github.com/user-attachments/assets/6e484ffa-6271-4973-8e05-3a191ca3d215)
+
+
 
 
